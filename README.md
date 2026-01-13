@@ -15,4 +15,4 @@ Hoje estou em busca de oportunidades que me desafiem e que eu possa aplicar todo
 [![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn](https://www.linkedin.com/in/tainan-frigotto/)
 &nbsp;
 📧 tainan.frigotto@gmail.com
-📲 [WhatsApp](//wa.me/5547996086074)ading README Tainan.md…]()
+📲 [WhatsApp](//wa.me/5547996086074)
